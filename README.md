@@ -1,2 +1,2 @@
 # website
-comming soooooooon
+https://abetworks.in/templates/Resources.html
